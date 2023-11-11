@@ -13,4 +13,5 @@ such as Neon Genesis Evangelion, Beastars, Made in Abyss, Oddtaxi and K-on! As m
 ![505-markiplier](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/703e35b3-0226-4934-b85a-841dcd2bab41)
 ![mugi-tsumugi](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/a0ab5ac1-6687-44d0-b197-6ebd6a315fbf)
 ![happy-birthday-to-shinji-ikari-v0-0f0pmqh05y391](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/6bcfda17-e2ff-4e67-ae6c-3173894bd7ae)
+![legosi-beastars](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/26bb93a3-015d-4dda-8713-975e268a064b)
 ![cats-dont-dance-typing](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/91334da7-5d33-4a95-8bfa-9209e4c25eaf)
