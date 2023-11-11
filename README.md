@@ -6,6 +6,9 @@ such as Neon Genesis Evangelion, Beastars, Made in Abyss, Oddtaxi and K-on! As m
 - 📫 How to reach me: On Twitter, my Discord as 'luminarykebab' and my Steam page as 'Edgar214' as well
 - MyAnimeList: https://myanimelist.net/profile/Eleven214
 - My Apple Music: https://music.apple.com/profile/edgarfreire21
+- 📷 My Setup:
+![IMG_0900](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/1c920568-5cd6-40d3-a4d5-986674d5d511)
+
 - 🐻 Favorites Characters:
 
 ![999](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/c69ad262-03bc-482c-964f-d0bbbae8b382)
