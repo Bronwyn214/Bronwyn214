@@ -15,3 +15,4 @@ such as Neon Genesis Evangelion, Beastars, Made in Abyss, Oddtaxi and K-on! As m
 ![legosi-beastars](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/26bb93a3-015d-4dda-8713-975e268a064b)
 ![ezgif-1-6f20a31b8d](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/cec79e19-c0fb-4f30-a0b7-8f9aee4a0439)
 ![cats-dont-dance-typing](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/91334da7-5d33-4a95-8bfa-9209e4c25eaf)
+![tumblr_153bf38afae67333b753bdaf4e6f6a90_18c0c9ff_540](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/092a7bff-d1dd-4d60-842a-ca42ec359c71)
