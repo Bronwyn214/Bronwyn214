@@ -7,5 +7,7 @@ such as Neon Genesis Evangelion, Beastars, Made in Abyss, Oddtaxi and K-on! As m
 - MyAnimeList:https://myanimelist.net/profile/Eleven214
 - My Apple Music:https://music.apple.com/profile/edgarfreire21
 - 🐻 Favorites Characters:
+
+
 ![ezgif-1-6f20a31b8d](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/cec79e19-c0fb-4f30-a0b7-8f9aee4a0439)
 ![cats-dont-dance-typing](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/91334da7-5d33-4a95-8bfa-9209e4c25eaf)
