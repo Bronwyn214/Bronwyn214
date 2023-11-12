@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Edgar Freire also very well known as 'Eleven' or 'Sawyer' on Smash Ultimate and 'Edgar214' on Geometry Dash
+- 👋 Hi, I’m Edgar Freire also very well known as 'Eleven' or 'Sawyer' on Smash Ultimate (Hero main) and 'Edgar214' on Geometry Dash
 - 👀 I’m interested in stuff like Super Smash Bros Ultimate, Geometry Dash, Mario games in general, FNAF, Bluey, Furry, Drawings, Pokemon and Anime Stuff
 such as Neon Genesis Evangelion, Beastars, Made in Abyss, Oddtaxi and K-on! As my favorites animes by far..
 - 🌱 I’m currently learning Python coding in Visual Studio on my career of Audit and Management control which is mainly focused on Accounting Stuff
@@ -6,6 +6,7 @@ such as Neon Genesis Evangelion, Beastars, Made in Abyss, Oddtaxi and K-on! As m
 - 📫 How to reach me: On Twitter, my Discord as 'luminarykebab' and my Steam page as 'Edgar214' as well
 - 📷 My Setup:
 ![IMG_0900](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/1c920568-5cd6-40d3-a4d5-986674d5d511)
+![FwByReWWYAAgAuf](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/9604646c-8a12-4219-8239-5c00818df925)
 
 - 🐻 Favorites Characters:
 
