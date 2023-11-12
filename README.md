@@ -9,6 +9,7 @@ such as Neon Genesis Evangelion, Beastars, Made in Abyss, Oddtaxi and K-on! As m
 ![FwByReWWYAAgAuf](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/9604646c-8a12-4219-8239-5c00818df925)
 
 - 🐻 Favorites Characters:
+
 ![999](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/c69ad262-03bc-482c-964f-d0bbbae8b382)
 ![505-markiplier](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/703e35b3-0226-4934-b85a-841dcd2bab41)
 ![ssstwitter com_1699832944139](https://github.com/Bronwyn214/Bronwyn214/assets/150549434/6c00feba-83f7-4f3d-b699-5af4d105c759)
